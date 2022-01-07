@@ -16,3 +16,9 @@ Now I am talking you through local and remote practice because their nothing els
 * Where do you live?
 * What your nickname? do you have ?
 * Why are you born? don't know why am asking this?
+
+
+Now adding to UwU Mr. Mueller schedule for his sunday life.
+
+List:
+
