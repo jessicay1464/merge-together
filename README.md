@@ -1,1 +1,4 @@
-# merge-together
+Making
+conflicts
+on
+purpose
