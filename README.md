@@ -8,6 +8,7 @@ it
 a
 lot!!!
 
+We are learning how to fix conflicts when there are multiple people working in the same line.
 
 Now I am talking you through local and remote practice because their nothing else to say in here.
 * how are you doing my good friend jessica?
